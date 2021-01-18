@@ -1,0 +1,95 @@
+---
+description: "Easiest Way to Prepare Perfect Gratin with Bocchan Kabocha Squash"
+title: "Easiest Way to Prepare Perfect Gratin with Bocchan Kabocha Squash"
+slug: 582-easiest-way-to-prepare-perfect-gratin-with-bocchan-kabocha-squash
+date: 2020-11-28T04:02:58.713Z
+image: https://img-global.cpcdn.com/recipes/5224584505720832/751x532cq70/gratin-with-bocchan-kabocha-squash-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5224584505720832/751x532cq70/gratin-with-bocchan-kabocha-squash-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5224584505720832/751x532cq70/gratin-with-bocchan-kabocha-squash-recipe-main-photo.jpg
+author: Jorge Ortega
+ratingvalue: 4.1
+reviewcount: 48924
+recipeingredient:
+- "2 Bocchan kabocha squash Japanese mini pumpkin"
+- "100 grams Ground chicken"
+- "1 Onion"
+- "1 Carrot"
+- "2 Potatoes"
+- "6 Button mushrooms"
+- "1/2 bunch Shimeji mushrooms"
+- "2 tbsp Flour"
+- "3 grams Additivefree consomme granules"
+- "300 ml Milk"
+- "4 tbsp Pizza cheese"
+- "2 tsp Panko"
+- "1 Fresh parsley"
+recipeinstructions:
+- "Gratin sauce: Cut the onion, carrot and potato into 1 cm pieces. Microwave until soft (reference: 5 minutes in 1000 W). Heat a pot with butter and add ground chicken, onion, carrot, potato, shimeji mushrooms, button mushrooms and saute."
+- "When the pot contents have wilted, add flour and continue sautéing. Add milk a little at a time and mix well as you add milk. Add consomme granules and when the sauce has thickened, it is done."
+- "Wash the kabocha squash, wrap in plastic wrap while it is still moist and microwave until softened (reference: 5 minutes in 1000 W).  Be careful not to heat it up too much."
+- "Cut about 1/4 of the upper part of the squash and scoop out the seeds inside."
+- "Stuff the gratin in the squash and sprinkle cheese, panko and parsley and bake it in an oven until browned."
+categories:
+- Recipe
+tags:
+- gratin
+- with
+- bocchan
+
+katakunci: gratin with bocchan 
+nutrition: 264 calories
+recipecuisine: American
+preptime: "PT31M"
+cooktime: "PT31M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+![Gratin with Bocchan Kabocha Squash](https://img-global.cpcdn.com/recipes/5224584505720832/751x532cq70/gratin-with-bocchan-kabocha-squash-recipe-main-photo.jpg)
+
+Hello everybody, it's Brad, welcome to my recipe site. Today, I will show you a way to make a distinctive dish, gratin with bocchan kabocha squash. It is one of my favorites. For mine, I will make it a bit unique. This is gonna smell and look delicious.
+
+
+
+Gratin with Bocchan Kabocha Squash is one of the most favored of current trending meals in the world. It is easy, it is quick, it tastes yummy. It is enjoyed by millions daily. They are nice and they look fantastic. Gratin with Bocchan Kabocha Squash is something which I have loved my entire life.
+
+
+To begin with this particular recipe, we must prepare a few components. You can have gratin with bocchan kabocha squash using 13 ingredients and 5 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Gratin with Bocchan Kabocha Squash:
+
+1. Prepare 2 Bocchan kabocha squash (Japanese mini pumpkin)
+1. Get 100 grams Ground chicken
+1. Take 1 Onion
+1. Get 1 Carrot
+1. Get 2 Potatoes
+1. Make ready 6 Button mushrooms
+1. Take 1/2 bunch Shimeji mushrooms
+1. Prepare 2 tbsp Flour
+1. Prepare 3 grams Additive-free consomme granules
+1. Get 300 ml Milk
+1. Take 4 tbsp Pizza cheese
+1. Prepare 2 tsp Panko
+1. Make ready 1 Fresh parsley
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Gratin with Bocchan Kabocha Squash:
+
+1. Gratin sauce: Cut the onion, carrot and potato into 1 cm pieces. Microwave until soft (reference: 5 minutes in 1000 W). Heat a pot with butter and add ground chicken, onion, carrot, potato, shimeji mushrooms, button mushrooms and saute.
+1. When the pot contents have wilted, add flour and continue sautéing. Add milk a little at a time and mix well as you add milk. Add consomme granules and when the sauce has thickened, it is done.
+1. Wash the kabocha squash, wrap in plastic wrap while it is still moist and microwave until softened (reference: 5 minutes in 1000 W).  Be careful not to heat it up too much.
+1. Cut about 1/4 of the upper part of the squash and scoop out the seeds inside.
+1. Stuff the gratin in the squash and sprinkle cheese, panko and parsley and bake it in an oven until browned.
+
+
+
+
+So that's going to wrap this up for this exceptional food gratin with bocchan kabocha squash recipe. Thank you very much for your time. I am sure you can make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
